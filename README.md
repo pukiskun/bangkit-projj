@@ -2,3 +2,4 @@
 its a private repository for me 
 
 bruhh i can edit ur readme 
+i encountered an error
